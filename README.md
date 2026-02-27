@@ -1,2 +1,2 @@
 # portfolio
-it is a portfolio 
+MOKHINUR KHALIMOVA
